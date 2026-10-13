@@ -1,4 +1,4 @@
 
-                                                                                                                                                                   " Beauty wrapped in pure blue light "
+" Beauty wrapped in pure blue light "
 
 <img width="70" height="70" alt="tumblr_bd47e14fad128fdafc917f6ab9ec7042_d0316743_1280" src="https://github.com/user-attachments/assets/af1a88e2-6ce0-4ce1-aa34-d98970e1878d" /> 
